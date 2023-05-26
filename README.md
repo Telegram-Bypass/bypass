@@ -1,6 +1,6 @@
 Bot Telegram for bypass OTP for worldwide  🧐 
 
-📶   https://bot-telegram  🛒🛒
+📶   https://bot-otp.com  🛒🛒
 
 🛒 1 hour To Telegram Bot USA/CA $25☑️
 
