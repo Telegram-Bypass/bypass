@@ -4,25 +4,25 @@ Bot Telegram for bypass OTP for worldwide  🧐
 
 🛒 1 hour To Telegram Bot USA/CA $25☑️
 
-🛒 1 hour To Telegram Bot USA-CA-UK-FR-IT-ES $40☑️
+🛒 1 hour To Telegram Bot Worldwide $40☑️
 
 🛒 1-Day To Telegram Bot USA/CA $50☑️
 
-🛒 1-Day To Telegram Bot USA-CA-UK-FR-IT-ES $90☑️
+🛒 1-Day To Telegram Bot Worldwide $90☑️
 
 🛒 1-Week To Telegram Bot USA/CA $200☑️
 
-🛒 1-Week To Telegram Bot USA-CA-UK-FR-IT-ES $350☑️
+🛒 1-Week To Telegram Bot Worldwide $350☑️
 
 🛒 1-Month To Telegram Bot USA/CA $650☑️
 
-🛒 1-Month To Telegram Bot USA-CA-UK-FR-IT-ES  $1000☑️
+🛒 1-Month To Telegram Bot Worldwide  $1000☑️
+
+🛒 Lifetime Telegram Bot $5000☑️
 
 Bot features ☑️
 
 Works for countries : Worldwide
-
-Languages : English - French - Spanish - Italy 
 
 Custom Script : YES ☑️
 
